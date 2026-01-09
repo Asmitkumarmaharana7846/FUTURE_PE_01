@@ -1,6 +1,6 @@
 Here are **15 highly clickable, youth-friendly YouTube title options**, optimized for curiosity, urgency, and future focus—without misleading claims:
 
-1. Degrees vs AI: These 5 Skills Win by 2030
+1. Degrees vs AI: These 5 Skills Win by 2030(SELECTED NICHE)
 2. 5 AI Skills That Make Degrees Feel Outdated
 3. Still Chasing Degrees? AI Skills Are Taking Over
 4. By 2030, These 5 AI Skills Will Matter More Than Degrees
